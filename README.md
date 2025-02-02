@@ -1,4 +1,4 @@
-## Hi there 👋. I am an undergraduate student from Shreeyantra  Collage , Damak. I am studying bachelora. I like to code and hope to create many greate codes in commming time.
+## Hi there 👋. I am an undergraduate student from Shreeyantra  Collage , Damak. I am studying Bachelore. I like to code and hope to create many greate codes in commming time.
 
 
 
